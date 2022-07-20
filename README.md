@@ -1,5 +1,3 @@
-Moving a bit slow but getting there!
-Passion for creation!
+Moving a bit slow but getting there.
 
-Aspiring Developer
-Audio Engineer | Sound Designer
+Aspiring Developer | Audio Engineer | Sound Designer
